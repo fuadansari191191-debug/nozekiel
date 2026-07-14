@@ -1,0 +1,2 @@
+# nozekiel
+tempat untuk belajar
